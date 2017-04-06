@@ -29,7 +29,7 @@ Presented here are the attributes we try to foster in ourselves, our _manifesto 
 
 5. When a fuckin' champ deems it necessary to be rude, the insult is laser-focused and offends no-one but the recipient.
 
-   > "A woman nearly ran me over this morning, so I called her a whore; John - that fuckin' champ I told you about - surprised me by immediately calling _me_ an arse-faced spunk trumpet. He explained, telling me he knows sex workers who are ten times the fuckin' champ I am. Fair point."
+   > "A woman nearly ran me over this morning, so I called her a whore; John - that fuckin' champ I told you about - surprised me by immediately calling _me_ an arse-faced spunk trumpet for using an insult like that. He explained, telling me he knows sex workers who are ten times the fuckin' champ I am. Fair point."
 
 6. If a fuckin' champ holds a strong opinion, it is never expressed in stronger terms than those being spoken to.
 
