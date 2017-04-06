@@ -41,8 +41,8 @@ Presented here are the attributes we try to foster in ourselves, our _manifesto 
 
 8. A fuckin' champ recognises the privileges that random chance has given them, and works to bring those same benefits to others.
 
-   > "I'm new here and had heard the streets on my walk home aren't very safe. I didn't realise Jo's home was on the other side of town until she'd dropped me off at mine; I'm glad this city has some fuckin' champs too."
+   > "I'm new here and had heard the streets on my walk home aren't very safe. I didn't realise Joe's home was on the other side of town until he'd dropped me off at mine; I'm glad this city has some fuckin' champs too."
 
 9. A fuckin' champ celebrates life and the diversity of people in it.
 
-   > "Are we going to this party at Francis' tonight?", "Hell yeah! He's a fuckin' champ – every time I go to one I meet someone I never thought I'd meet, but who I now can't imagine not knowing."
+   > "Are we going to this party at Francis' tonight?", "Hell yeah! Francis is a fuckin' champ – every time I go to one I meet someone I never thought I'd meet, but who I now can't imagine not knowing."
