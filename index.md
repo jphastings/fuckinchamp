@@ -13,7 +13,7 @@ Presented here are the attributes we try to foster in ourselves, our _manifesto 
 
 1. A fuckin' champ is mindful of the opinions and personal contexts of others.
 
-   > "Lucy, fuckin' champ that she is, suggested they all go to the new vegetarian restaurant at the weekend, as she knew Darren's partner was vegan.""
+   > "Lucy, fuckin' champ that she is, suggested they all go to the new vegan restaurant at the weekend, as she knew Darren's partner was vegetarian.""
 
 2. When talking, a fuckin' champ uses "I", "me" and "my" less than "you" and "your".
 
@@ -37,7 +37,7 @@ Presented here are the attributes we try to foster in ourselves, our _manifesto 
 
 7. When a fuckin' champ makes a mistake – not 'if' – immediate and appropriate action is taken to smooth any problems that arise.
 
-   > "Madelyn broke my late Dad's watch earlier today. She feels awful, as she doesn't have the money to replace it, but she offered to take me to the restaurant he always liked by way of apology. I'm sad, but what a fuckin' champ."
+   > "Madelyn broke my late Dad's watch earlier today. She feels awful, as it can't be repaired, but she offered to take me to the restaurant he always liked by way of apology. I'm sad, but what a fuckin' champ."
 
 8. A fuckin' champ recognises the privileges that random chance has given them, and works to bring those same benefits to others.
 
