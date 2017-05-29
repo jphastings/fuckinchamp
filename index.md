@@ -45,4 +45,4 @@ Presented here are the attributes we try to foster in ourselves, our _manifesto 
 
 9. A fuckin' champ celebrates life and the diversity of people in it.
 
-   > "Are we going to this party at Francis' tonight?", "Hell yeah! Francis is a fuckin' champ – every time I go to one I meet someone I never thought I'd meet, but who I now can't imagine not knowing."
+   > "Are we going to this party at Francis' tonight?", "Hell yeah! Francis is a fuckin’ champ — every time I go to these parties I meet someone I never thought I would, but who I now can’t imagine not knowing."
