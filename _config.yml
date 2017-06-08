@@ -6,6 +6,7 @@ tagline:             Who we are and what we strive for
 description:         There is a particular type of excellent person we choose to call a Fuckin' Champ. Here we define this kind of humble greatness that we aspire to.
 url:                 http://manifesto.fuckinchamp.fyi
 baseurl:             ''
+include: [".well-known"]
 
 # About/contact
 author:
